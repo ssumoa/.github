@@ -1,4 +1,4 @@
-## Merry X-mas 👋
+## Happy new year 👋
 
 <!--
 
